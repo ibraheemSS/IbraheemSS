@@ -48,5 +48,5 @@ Tech:
 
 ## 📫 Contact
 
-- LinkedIn:  LinkedIn
+- LinkedIn:  [LinkedIn](https://www.linkedin.com/in/ibraheem-sleet-a68a9a310/)
 - Email: ibraheemsleet2004@gmail.com
